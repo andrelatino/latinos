@@ -1,0 +1,2 @@
+# latinos
+IA Blog
